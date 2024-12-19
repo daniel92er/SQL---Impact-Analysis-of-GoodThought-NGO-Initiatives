@@ -1,0 +1,1 @@
+# SQL---Impact-Analysis-of-GoodThought-NGO-Initiatives
